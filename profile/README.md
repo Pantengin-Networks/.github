@@ -18,7 +18,7 @@ You are welcome to explore the repositories, learn from the resources, contribut
 ## Community
 
 Join our Discord:
-https://discord.gg/5gXNnSWt2z
+https://discord.gg/6xMz2qqzKp
 
 ## Links
 
